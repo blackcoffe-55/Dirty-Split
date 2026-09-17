@@ -232,4 +232,4 @@ Dirty Split is offered as a full free version, providing complete access to all 
 Ready to dive into the mystery? **Download Dirty Split now and start your detective adventure today!**
 
 ---
-**Last updated:** 2026-09-17 16:20:09 UTC
+**Last updated:** 2026-09-17 20:00:58 UTC
